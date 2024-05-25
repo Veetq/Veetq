@@ -1,1 +1,1 @@
-[Cat](https://github.com/Veetq/Veetq/blob/main/coding-cat-is-raising-your-productivity-3-v0-dtkrm36qtnb81-ezgif.com-webp-to-jpg-converter.jpg?raw=true)
+https://www.reddit.com/media?url=https%3A%2F%2Fpreview.redd.it%2Fcoding-cat-is-raising-your-productivity-3-v0-dtkrm36qtnb81.png%3Fwidth%3D1080%26crop%3Dsmart%26auto%3Dwebp%26s%3Ddbb15af5169539b2bdfd2433a43a7c43cd884bbd
